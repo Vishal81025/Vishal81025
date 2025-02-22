@@ -1,1 +1,1 @@
-I am Vishal Kumar. I am purshing My Btech journey from Chandigarh university,Mohali,Punjab
+I'm an aspiring computer science engineer with a passion for technology and a strong interest in creating innovative solutions. I enjoy coding, solving problems, and exploring new ways to use technology to make a difference. I’m always looking for opportunities to learn, improve, and grow in this exciting field.
